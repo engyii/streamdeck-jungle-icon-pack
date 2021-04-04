@@ -1,1 +1,0 @@
-# streamdeck-jungle-icon-pack
